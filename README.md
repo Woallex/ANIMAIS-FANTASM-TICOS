@@ -1,2 +1,2 @@
-# ANIMAIS-FANTASM-TICOS
+# ANIMAIS FANTASMÁTICOS
 Em desenvolvimento.
